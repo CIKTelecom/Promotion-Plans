@@ -1,7 +1,8 @@
 # Promotion-Plans
-CIK Promotion Plans- How to Grab the Deal Using Promo code CIK29.99
 
-Place Online Order - https://www.ciktel.com/eCare/ui/Eng/opp/index.asp
+#CIK Promotion Plans- How to Grab the Deal Using Promo code CIK29.99
+
+#Place Online Order - https://www.ciktel.com/eCare/ui/Eng/opp/index.asp
 
 What are you waiting for? Grab the deal as time is ticking up.
 
